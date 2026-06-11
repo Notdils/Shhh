@@ -1,2 +1,1 @@
-# Shhh
-shhh
+K mbek L belum jadi
